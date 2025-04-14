@@ -1,1 +1,1 @@
-# KC-shop
+# KC-shop_Remastered.
